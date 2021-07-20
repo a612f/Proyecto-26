@@ -1,1 +1,2 @@
 # Proyecto-26
+Esta receta de helado frito tiene la característica de estar hecho a una temperatura más baja de la habitual debido a que entra en contacto con temperatura muy alta al momento de la fritura, pero justamente este choque de temperaturas ayuda a que la textura del capeado con que se envuelve sea crujiente y caliente por fuera. Este helado frito se puede acompañar con fruta, jarabes, mieles o azúcar glass.

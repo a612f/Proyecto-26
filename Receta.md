@@ -1,0 +1,5 @@
+Coloca sobre una superficie lisa las rebanadas de pan y aplánalas con la ayuda de un rodillo; una vez aplanadas, coloca una bola de helado congelada al centro de la rebanada y envuélvela con el pan extendido hasta cubrir toda la superficie de la bola de helado, congela nuevamente por 1 hora o hasta que el pan esté muy firme.
+Para el rebozado, en un tazón mezcla la harina de trigo con el Polvo para hornear, el azúcar y la sal; vierte poco a poco el agua mineral y continúa mezclando hasta obtener una consistencia semiespesa (como se muestra en el video). Reserva hasta su uso.
+En una olla profunda, calienta abundante aceite a temperatura media.
+Cubre con la mezcla la bola de helado e inmediatamente fríe en el aceite hasta formar una costra dorada (por 2 minutos, aproximadamente), repite la operación con el resto de las bolas de helado. Te recomendamos que realices esta acción rápidamente una vez que saques la bola del congelador.
+Sobre la bola de helado frita, espolvorea azúcar glass y puedes decorar con fresas y hojas de hierbabuena.
